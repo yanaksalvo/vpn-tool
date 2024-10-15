@@ -1,3 +1,4 @@
 # vpn-tool
 hi guys bro bu kodu yapan kişi cinayet 1943 şişko domdom dombili 
-https://t.me/tehlikeliadam
+
+- [Telegram](https://t.me/tehlikeliadam)
